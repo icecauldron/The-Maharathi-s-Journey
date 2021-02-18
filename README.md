@@ -1,1 +1,2 @@
-# The-Maharathi-s-Journey
+# The Maharathi's Journey
+A Buffy Legacy.
