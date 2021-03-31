@@ -1,5 +1,12 @@
 # The Maharathi's Journey
 
+There was an Age of Alignment, a time when all was play and friendliness, even in the hunt. A time free of agriculture of mining, since humans worked with the world to be fed by her plenty. This we call the _Satya Yuga_.
+
+There was an Age of Power, a time of emperors and conquerors. This is the birth of agriculture, mining, and work. A time when humans learned how to make the world do their bidding. This we call the _Treta Yuga_.
+
+There was an Age of Mediocrity, when the will of humanity declined. Disease and war march on. People divide from the wisdom of their ancestors. This we call the _Dvapara Yuga_.
+
+Now is the Age of Darkness, the _Kali Yuga_. It is time of ignorance, when people mistake knowledge for wisdom, material abundance for wealth, and cowardice for courage. Every human walks around with a war within them, confused by their own hypocrisy. The world is polluted. In these times, monsters, asuras, and devas roam, using these conflicted men for their games. Yet, there is light in the darkness. The _Maharathi_, a warrior to fight the children of Darkness, to carry the light of _Satya Yuga_ through the _Kali Yuga_ and into the next cycle.
 
 Adya is a 12 year old girl living in the Indore Province of India. After Adya's _Ritu Kala Samskara_ or her coming of age ceremony following her menarche, she begins to have visions of past lives that can come to her in her dreams or rip her from real time into past realities. Over the next six months, her parents, who are extremely concerned with public image and saving face, grow concerned that Adya's quasi-mental breaks will give their family a bad reputation for being mentally ill. In response to this, they send her to a mental facility for 3 years to try and rehabilitate her. A few weeks after arrival, she meets a Tibetan Vedic "seer", Virupaksa (Viru), from Bengal who visits the facility to guide the patients toward recovery and healing. Underneath his stern, but cordial, disposition, Viru has ulterior motives for working at the mental facility. Years earlier, he had a vision that "the destroyer" would enter this facility and would require his guidance to defeat the rakshasa. A mythos in their own right, but very real to Viru, rakshasas are a fierce, man-eating species of shapeshifters steeped in millenia-old byzantine power struggles behind the veil of human supremacy. Viru meets Adya after a few weeks of her residency and instantly recognizes her as "the destroyer".  
 
